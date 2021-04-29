@@ -1,2 +1,0 @@
-# Ruchi143143.github.io
-WEB DEV BOOTCAMP SHAPEAI
